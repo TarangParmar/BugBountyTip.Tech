@@ -1,6 +1,6 @@
 # BugBountyTips.Tech
 
-## Who We Are:
+## Who am I:
 Hello My Name is Tarang Parmar aka Dark Scorpion
 
 ## Vision: 
