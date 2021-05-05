@@ -8,4 +8,4 @@ Hello My Name is Tarang Parmar aka Dark Scorpion
 
 **Tarang Parmar** decided to share the experiences – which worked out for him and could help beginners to start their online journey.
 
-If you like to share your own tips Please Contact Us on contact@bugbountytips.tech
+If you like to share your own tips Please Contact Us on tarang.parmar0@gmail.com
